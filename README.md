@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on app development projects to gain experience and become an expert
 - 📫 How to reach me: kidisodahlon@gmail.com or asodahlon@gmail.com
 - 😄 Pronouns: call me  Tony
--  ⚡ Fun fact
+-  ⚡ Fun fact Food and cooking are my guilty pleasures
 
 <!---
 AntonyDevPro23/AntonyDevPro23 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
