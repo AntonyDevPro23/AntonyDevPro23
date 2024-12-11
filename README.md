@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning new tech skills with sayna 
 - 💞️ I’m looking to collaborate on app development projects to gain experience and become an expert
 - 📫 How to reach me: kidisodahlon@gmail.com or asodahlon@gmail.com
-- 😄 Pronouns: Tony
+- 😄 Pronouns: Call me Tony
 -  ⚡ Fun fact.
 
 <!---
