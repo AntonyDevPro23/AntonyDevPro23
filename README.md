@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AntonyDevPro23
+- 👋 Hi, I’m @SodahlonAntony
 - 👀 I’m interested incivil engineering, new technologies e-commerce and cryptocurrencies 
 - 🌱 I’m currently learning new tech skills with sayna 
 - 💞️ I’m looking to collaborate on app development projects to gain experience and become an expert
