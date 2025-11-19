@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SodahlonAntony
 - 👀 I’m interested incivil engineering, new technologies e-commerce and cryptocurrencies 
-- 🌱 I’m currently learning new tech skills with sayna 
+- 🌱I am currently acquiring new technical skills with Sayna, particularly in web development, and I am a Google-certified UX designer.
 - 💞️ I’m looking to collaborate on app development projects to gain experience and become an expert
 - 📫 How to reach me: kidisodahlon@gmail.com or asodahlon@gmail.com
 - 😄 Pronouns: call me  Tony
